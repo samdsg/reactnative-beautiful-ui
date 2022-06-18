@@ -2,4 +2,4 @@
 
 # Wathc this video for full instruction of installation
 
-https://youtu.be/qOypstGPY5s
+https://www.youtube.com/watch?v=qEW05hPLdEA
